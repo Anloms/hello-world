@@ -1,1 +1,1 @@
-Hello there my Munchkin!
+Hello there my Munchkin! You just have seen an illki Possum sneaking out with his guitar to the living room. Has he decided to dust it off just this once or maybe...?
